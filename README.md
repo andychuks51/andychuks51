@@ -1,4 +1,4 @@
-# Hi there, I'm [ANDREW] 👋
+# Hi there, I'm ANDREW 👋
 
 ### Founding Digital Tech Scribe | Web Developer | B.Sc. Building Construction Technology
 
